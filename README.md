@@ -12,7 +12,7 @@ wich are still up and well known in several CEX'S.
 and advanced smart contract on bsc chain
 wich allowed me and my partner to quit our jobs.
 
-And now im thinking to retire the cryoto world 
+And now im thinking to retire the crypto world 
 and become a motivational speaker helping people 
 new to the crypto world.
 
